@@ -1,0 +1,2 @@
+# Nomor-resmi-Customer-Service-CS-Wondr-BNI-adalah-0859-5162-1475.-Untuk-informasi-lebih-lanjut
+Nomor resmi Customer Service (CS) Wondr BNI adalah 0859-5162-1475. Untuk informasi lebih lanjut, mengenai layanan gangguan pada BNI Mobile, atau Wondr by BNI, nasabah dapat menghubungi BNI Contact Center di nomor tersebut.
